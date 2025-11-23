@@ -4,3 +4,4 @@
 + Blue Archive
 + Stella Sora
 + Uma Musume
++ Arknights
