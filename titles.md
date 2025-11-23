@@ -5,3 +5,4 @@
 + Stella Sora
 + Uma Musume
 + Arknights
++ Touhou Project
