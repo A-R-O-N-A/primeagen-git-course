@@ -12,3 +12,8 @@
 + Kashima
 + Shimakaze
 + Amatsukaze
+
+## Arknights
++ Amiya
++ Rosmontis
++ Kaltsit
