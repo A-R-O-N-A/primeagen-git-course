@@ -7,3 +7,8 @@
 + Yuuka Hayase
 + Ibuki Tanga
 + Kazusa Kyouyama
+
+## Kancolle waifus
++ Kashima
++ Shimakaze
++ Amatsukaze
