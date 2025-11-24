@@ -2,3 +2,8 @@
 + Flandre
 + Remilia
 + Sakuya
+
+## Blue Arhive waifus
++ Yuuka Hayase
++ Ibuki Tanga
++ Kazusa Kyouyama
