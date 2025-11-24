@@ -1,6 +1,6 @@
 # Titles
 
-+ Kantai Collection
++ Cunny Collection 
 + Blue Archive
 + Stella Sora
 + Uma Musume
