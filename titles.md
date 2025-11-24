@@ -11,3 +11,4 @@
 + Trickal 
 + Muse Dash
 + Bang Dream
++ Heaven Burns Red
