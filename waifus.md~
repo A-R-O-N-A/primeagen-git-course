@@ -8,6 +8,13 @@
 + Ibuki Tanga
 + Kazusa Kyouyama
 
+### Millennium
++ Yuuka
++ Arisu
+
+## Red Winter
++ Takane
+
 ## Kancolle waifus
 + Kashima
 + Shimakaze
@@ -17,3 +24,4 @@
 + Amiya
 + Rosmontis
 + Kaltsit
+
