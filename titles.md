@@ -8,3 +8,4 @@
 + Touhou Project
 + Luna Nights
 + Azur Lane
++ Trickal 
