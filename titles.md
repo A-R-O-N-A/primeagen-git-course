@@ -10,3 +10,4 @@
 + Azur Lane
 + Trickal 
 + Muse Dash
++ Bang Dream
