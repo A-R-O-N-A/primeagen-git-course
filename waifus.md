@@ -12,6 +12,7 @@
 + Yuuka
 + Arisu
 + Momoi
++ Neru
 
 ## Red Winter
 + Takane
